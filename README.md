@@ -5,7 +5,7 @@
 ### communication
 
 
-### my skills
+### my skills.
 
 
 
